@@ -12,3 +12,8 @@ Beauregard bleibt keine Wahl, so dass er tatsächlich mit einer letzten Heldenta
 * intelligent
 * gut aussehend
 * schmutzig
+
+
+In einer Szene verprügelt Nobody seine Gegner mit Hilfe einer hölzernen Drehfigur. Diese sieht nicht nur wie Bud Spencer aus, sie verteilt auch Ohrfeigen à la Bud Spencer. Am Ende der Szene bedankt sich Nobody bei der Holzfigur mit einer Hommage an Carlo Pedersoli, Bud Spencer:
+
+> Danke Karl
